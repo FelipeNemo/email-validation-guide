@@ -1,4 +1,2 @@
 
-![Multicolor Professional Business Timeline Infographic ](https://github.com/user-attachments/assets/7186df11-05ef-4cf0-a054-fe3038d79434)
-
-
+![Multicolor Professional Business Timeline Infographic  (1)](https://github.com/user-attachments/assets/05a8a0b6-5954-4ce8-b45f-cda0675cebb7)
